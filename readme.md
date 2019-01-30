@@ -2,5 +2,5 @@
 
 
 I'll be a great developer!!!!  
-No one cannot interrupt me!  
+No one can interrupt me!  
 
